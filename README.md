@@ -1,1 +1,1 @@
-# artursgozmans.github.io
+# arturgozmans.github.io
