@@ -1,1 +1,1 @@
-# informatikaartursgozmans.github.io
+# artursgozmans.github.io
